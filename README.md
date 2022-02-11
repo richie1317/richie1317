@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Richard Rao, Lead Developer at Goliacyde
+- 📫 How to reach me- richard.rao@goliacyde.com
